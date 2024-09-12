@@ -38,10 +38,11 @@ With hands-on experience in sound and graphic design, as well as creative conten
 Adding to this, expanding my knowledge of Adobe Creative Suite and other advanced video editing tools is essential given my extensive experience in sound design, graphic design, and video editing. My background in these areas, combined with roles in marketing, production management, and creative content creation, highlights the importance of mastering these tools to enhance my creative output and project management. Adobe Creative Suite offers powerful features that can significantly elevate the quality and efficiency of my work, allowing me to create more polished and innovative content. As I manage large-scale projects and events, these skills will streamline the production process, enabling me to deliver high-caliber results and maintain a competitive edge in the industry. Moreover, with my dedication to excellence and leadership, advancing my expertise in these editing platforms will further solidify my role as a versatile and cutting-edge professional in the creative and technical fields.
 
 
-- 💞️ I’m looking to collaborate on ...
 - 📫 Reach me through my socials
 Facebook: https://www.facebook.com/allen.pagdanganan/
 Instagram: @len_pagd
+or my
+Gmail: allenpagdanganan@gmail.com
 
 - 😄 Pronouns: she/her
 
